@@ -1,7 +1,2 @@
-EVERYTHing changed YESSSS!!
-aaa:wq
+abcedfg hi~~~~~~~~~~~~
 
-zzz
-aaa
-cc
-sfafasd
